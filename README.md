@@ -13,6 +13,8 @@
 
 1. [地藏王菩萨本愿经](http://www.quanxue.cn/CT_FoJia/DiChangIndex.html)
 2. [飘蓝书斋](https://www.yuque.com/molychin/wsnqvs)
+3. 慈经
+4. [大悲咒](https://www.diyifanwen.com/tool/dabeizhou/)
 
 ## 学习的方法
 
